@@ -1,1 +1,0 @@
-# vskurikhin.github.io
